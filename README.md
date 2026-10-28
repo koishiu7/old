@@ -1,1 +1,0 @@
-# koishiu7.github.io
